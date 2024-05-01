@@ -1,1 +1,0 @@
-# andyssmartlife.github.io
